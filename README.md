@@ -22,7 +22,7 @@ https://www.youtube.com/watch?v=2ntyGVopftM&t=421s
 ### 7. 李瑞环
 ### 8. 朱镕基
 ### 9. 李长春
-### 10. 汪洋
+### 10. [汪洋](https://github.com/chinahope1978/2025-5-14/blob/main/10-wangyang.md)：心如木石未起身，余生不做宦游人
 ### 11. 栗战书
 ### 12. 贾庆林
 ### 13. 赵乐际
