@@ -11,5 +11,5 @@ https://www.youtube.com/watch?v=2ntyGVopftM&t=421s
 ---
 
 ### 1. [胡锦涛](https://github.com/chinahope1978/2025-5-14/blob/main/1-hujintao.md)：重拾改革开放之旗，重回党的集体领导
-### 2. 张又侠
+### 2. [张又侠](https://github.com/chinahope1978/2025-5-14/blob/main/2-zhangyouxia.md)：反思二十大非法连任，军队为改革开放保驾护航
 ### 3. 习近平
