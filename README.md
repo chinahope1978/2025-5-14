@@ -31,4 +31,4 @@ https://www.youtube.com/watch?v=2ntyGVopftM&t=421s
 ### 16. 李强
 ### 17. 蔡奇
 ### 18. 丁薛祥
-### 19. 刘源
+### 19. [刘源](https://github.com/chinahope1978/2025-5-14/blob/main/19-liuyuan.md)：军队国家化，新民主主义
