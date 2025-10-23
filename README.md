@@ -5,7 +5,7 @@ https://www.youtube.com/watch?v=2ntyGVopftM&t=421s
 
 请支持原作者。真假并未验证，仅供存档参考。
 
-标题为编者依原文意后加，编者亦可能在文末添加个人思考评述。
+标题为编者依原文意后加。
 
 [chinahope1978@gmail.com](mailto:chinahope1978@gmail.com)，于二十届四中全会前
 
