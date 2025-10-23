@@ -27,6 +27,6 @@ https://www.youtube.com/watch?v=2ntyGVopftM&t=421s
 ### 12. 贾庆林
 ### 13. 赵乐际
 ### 14. [胡春华](https://github.com/chinahope1978/2025-5-14/blob/main/14-huchunhua.md)：怀念李克强，不争亦不逃
-### 15. 王沪宁
+### 15. [王沪宁](https://github.com/chinahope1978/2025-5-14/blob/main/15-wanghuning.md)：理论诡辩，中道开新
 ### 16. 李强
 ### 17. 刘源
