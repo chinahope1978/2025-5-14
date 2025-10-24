@@ -29,6 +29,6 @@ https://www.youtube.com/watch?v=2ntyGVopftM&t=421s
 ### 14. [胡春华](https://github.com/chinahope1978/2025-5-14/blob/main/14-huchunhua.md)：怀念李克强，不争亦不逃
 ### 15. [王沪宁](https://github.com/chinahope1978/2025-5-14/blob/main/15-wanghuning.md)：理论诡辩，中道开新
 ### 16. 李强
-### 17. 蔡奇
+### 17. [蔡奇](https://github.com/chinahope1978/2025-5-14/blob/main/17-caiqi.md)：七大调整守底线，同坐大船不可翻
 ### 18. 丁薛祥
 ### 19. [刘源](https://github.com/chinahope1978/2025-5-14/blob/main/19-liuyuan.md)：军队国家化，新民主主义
